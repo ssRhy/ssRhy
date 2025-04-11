@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @ssRhy
 - 👀 I’m interested in Tech and Engineering 
-- 🌱 I’m currently learning  Ai&Web&Hardware
+- 🌱 I’m currently learning  everything 
 - 💞️ I’m looking to collaborate on everyone
+
 - 📫 How to reach me 3241936357@qq.com
 
 
