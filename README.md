@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on everyone
 
 - 📫 How to reach me 3241936357@qq.com
+hanyun765@gmail.com
+
 
 
 - 😄 Pronouns: ...
