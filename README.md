@@ -1,12 +1,9 @@
 - 👋 Hi, I’m @ssRhy
 - 👀 I’m interested in Tech and Engineering 
-- 🌱 I’m currently learning  everything 
-- 💞️ I’m looking to collaborate on everyone
-
+- 🌱 I’m currently learning  Robotic,AI,Arts,Commercial.
+- 💞️ I’m looking to collaborate on everyone and join Hackthon!
 - 📫 How to reach me 3241936357@qq.com
 hanyun765@gmail.com
-
-
 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
