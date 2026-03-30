@@ -6,7 +6,7 @@
 hanyun765@gmail.com
 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: hanyunssr.xyz
 
 <!---
 ssRhy/ssRhy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
